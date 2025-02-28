@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Anything & Everything
 - 📫 How to reach me ...Dahardestngreatest666@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...I'm the hardest & greatest cause of that shit! LMAO
+- ⚡ Fun fact: ... she's ⚡ 
 
 <!---
 Dahardest666/Dahardest666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
